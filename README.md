@@ -1,0 +1,1 @@
+# EndTermProject_O.Toishybek_S.Abdykalyk
